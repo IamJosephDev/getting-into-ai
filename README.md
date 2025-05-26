@@ -32,7 +32,7 @@ The course covers:
 - Collaboration is key
 
 ## My Certificate
-![Coursera Certificate (https://www.coursera.org/account/accomplishments/verify/LS5B982GDPR9?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course)
+Coursera Certificate (https://www.coursera.org/account/accomplishments/verify/LS5B982GDPR9?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course)
 
 ## Thread Recap
 I shared this journey on X:  
